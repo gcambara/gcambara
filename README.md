@@ -12,7 +12,7 @@
 
 ⚡ - Fun fact: I'm also a **music producer** and a **touring musician** for Spanish pop artist [Anaju](https://www.youtube.com/channel/UCVDcDe7Xn2yRUCMM6-eebRg).
 
-📫 - Reach me out at: [LinkedIn](https://www.linkedin.com/in/guillermocambara/) | [Twitter](https://twitter.com/guillecambara) | [Gmail](guillermo.cambara@upf.edu)
+📫 - Reach me out at: [LinkedIn](https://www.linkedin.com/in/guillermocambara/) | [Twitter](https://twitter.com/guillecambara) | [Gmail](mailto:guillermo.cambara@upf.edu)
 
 
 <!--
